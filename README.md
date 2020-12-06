@@ -1,1 +1,1 @@
-# SenseOfStyle
+# Sense Of Style
