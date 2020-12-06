@@ -1,1 +1,1 @@
-# Sense Of Style
+# Sense of Style
